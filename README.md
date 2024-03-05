@@ -1,0 +1,1 @@
+sono troppo forte!
